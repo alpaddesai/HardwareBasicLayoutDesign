@@ -2,6 +2,8 @@
 
 ![image](powerplanes.jpg)
 
+![image](AllegroEditorCertificate.jpg)
+
 ![image](EthicsandExcellence.png)
 
 ![image](USCopyrightCertificate.png)
